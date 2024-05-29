@@ -5,9 +5,9 @@
 
 - 🔭 I’m currently working on **finish my carrer**
 
-- 🌱 I’m currently learning **love myself**
+- 🌱 I’m currently learning **how to finish my carrer**
 
-- 🤝 I’m looking for help with **my life**
+- 🤝 I’m looking for help with **how to finish my carrer**
 
 - 📫 How to reach me **kevinhapo@gmail.com**
 
